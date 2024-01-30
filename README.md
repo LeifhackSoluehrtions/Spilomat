@@ -1,2 +1,2 @@
 # Spilomat
-Hier ist der tolle Spilomat (gut)
+Hier ist der tolle Spilomat (gut) von Leifhackgaming
